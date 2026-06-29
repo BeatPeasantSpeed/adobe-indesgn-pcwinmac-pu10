@@ -1,4 +1,4 @@
-# 
+# Inteligente Adobe InDesign filtros para Mac OS | VIP Adobe InDesign filtros para PC Windows. Con guías de perspectiva y rellenos de patrón — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
